@@ -42,4 +42,4 @@
 4. Go to the usage guide above and skip to **step 3**
 
 ## Help needed?
-Join https://discord.gg/AlexFlipnote if you need help.
+Write to markexe_ on Discord and he will help you!
